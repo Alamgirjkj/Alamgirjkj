@@ -5,6 +5,8 @@
 - 📫 How to reach me ...
 
 <!---
-Alamgirjkj/Alamgirjkj is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Alamgirjkj is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+https://alamgirjkj007.business.site/
+https://alamgirjkj007.wordpress.com
